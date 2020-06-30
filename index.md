@@ -9,4 +9,4 @@ Als erwachsende Löwen begegnen sich die beiden wieder und verlieben sich in ein
 * stur
 * aufgeweckt
 
-> "Die? Wir! Sie sind doch wir oder siehst du einen Unterschied?"
+> Die? Wir! Sie sind doch wir oder siehst du einen Unterschied?
