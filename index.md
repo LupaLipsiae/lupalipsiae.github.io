@@ -8,3 +8,5 @@ Als erwachsende Löwen begegnen sich die beiden wieder und verlieben sich in ein
 * neugierig
 * stur
 * aufgeweckt
+
+> Die? Wir! Sie sind doch wir oder siehst du einen Unterschied?
